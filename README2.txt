@@ -1,3 +1,0 @@
-Jheison David Vargas Rayo
-Reto único Refuerzo ciclo 4
-Sprint 1 y 2
